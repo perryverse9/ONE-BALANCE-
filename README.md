@@ -9,3 +9,4 @@ Better save your passkey in google than device
 Add to your Daily List
 Do not put big amount , since this still in BETA
 very Early - So Don't Miss
+good
